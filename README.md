@@ -1,10 +1,5 @@
-# Social-Accounts-For-kepala
-Social Accounts of kepalabergetar9.
-Kepala bergetar 9 is no stranger to most fans, it allows you to watch malaysian online free. It is best website to watch malaysian dramas, malaysian movies, malaysian shows online for free without Ads. We have largest collection of  dramas, movies, tv-shows you want to watch!
-Website: https://kepalabergetar9.com/
-Address: No. 3280 Jln Genting Kelang, Kuala Lumpur, Wilayah Persekutuan, 53300, Malaysia
-Hashtag: #kepalabergetar9 #kepalabergetar #kbergetar #pencurimovies #dfm2u #myflm4u
-Social: 
+
+Social Network: 
 https://facebook.com/kepalabergetar90
 https://twitter.com/Kbergetar9
 https://social.msdn.microsoft.com/Profile/Kepala%20Bergetar%209
